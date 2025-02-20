@@ -1,0 +1,1 @@
+# Burayı Acunmedya Akademi AkademiQ Staj Programı İçin Kullanacağım.
